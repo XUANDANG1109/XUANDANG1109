@@ -1,4 +1,4 @@
-- 👋 Hi, I’m XUAN DANG THI LINH (SUNNY)
+- 👋 Hi, I’m XUAN DANG 
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently learning Information Technology
 
